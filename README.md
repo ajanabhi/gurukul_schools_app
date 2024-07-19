@@ -6,7 +6,7 @@ e-gurukul videos http://e-gurukul.net/
 
 make cow science as part of the courses
 
-ramayana as school course
+ramayana,bagvat geeths as school course
 
 https://www.youtube.com/watch?v=1CrUNk8XGcc - విలువల బడి?
 
