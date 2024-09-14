@@ -4,7 +4,8 @@ an app for all gurukul schools listing and collabaration forum
 
 e-gurukul videos http://e-gurukul.net/
 
-make cow science as part of the courses
+## make cow science as part of the courses 
+https://sanskritdocuments.org/sites/gomAtA/
 
 ramayana,bagvat geeths as school course
 
