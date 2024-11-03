@@ -27,3 +27,6 @@ https://www.gurukultti.org/
 # links
 
 https://www.vidhyanjaliacademy.com/
+
+
+# should teach in sanskrit or mother tounge
